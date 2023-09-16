@@ -1,2 +1,2 @@
 # Socio-Economic-evolution-of-Darjeeling
-a short reading on the Socio-Economic growth od Darjeeling
+A short reading on the Socio-Economic growth of Darjeeling
